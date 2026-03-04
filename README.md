@@ -1,4 +1,4 @@
-![Image](https://github.com/user-attachments/assets/5dfd98b5-2a1f-45a7-9595-6b472365eb7b)
+![Image](https://github.com/user-attachments/assets/c4985f8f-0d79-4166-9438-18e90903df57)
 
 BEWARE i like to roleplay but i will most likely not say stuff first so PLEASE PLEASE PLEASE INT WITH ME IN CHARACTER I WILL BE MORE THAN HAPPY TO INCHARACTER WITH U
 anyone from state smp or chained life please incharacter with me please bro i need this
