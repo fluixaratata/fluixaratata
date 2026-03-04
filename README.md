@@ -3,7 +3,7 @@
 BEWARE i like to roleplay but i will most likely not say stuff first so PLEASE PLEASE PLEASE INT WITH ME IN CHARACTER I WILL BE MORE THAN HAPPY TO INCHARACTER WITH U
 anyone from state smp or chained life please incharacter with me please bro i need this
 
-![Image](https://github.com/user-attachments/assets/271ad20f-e661-4cbc-8152-328c62a5764b)
+![Image](https://github.com/user-attachments/assets/75cca0dc-cbbf-4532-8109-c1c6b7a5ec4c)
 
 <!--
 **fluixaratata/fluixaratata** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
