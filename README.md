@@ -1,9 +1,9 @@
-![Image](https://github.com/user-attachments/assets/7e49f2c3-8d2c-4551-b9c5-3531b349c0f0)
+![Image](https://github.com/user-attachments/assets/5dfd98b5-2a1f-45a7-9595-6b472365eb7b)
 
 BEWARE i like to roleplay but i will most likely not say stuff first so PLEASE PLEASE PLEASE INT WITH ME IN CHARACTER I WILL BE MORE THAN HAPPY TO INCHARACTER WITH U
 anyone from state smp or chained life please incharacter with me please bro i need this
 
-![Image](https://github.com/user-attachments/assets/75cca0dc-cbbf-4532-8109-c1c6b7a5ec4c)
+![Image](https://github.com/user-attachments/assets/7e49f2c3-8d2c-4551-b9c5-3531b349c0f0)
 
 <!--
 **fluixaratata/fluixaratata** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
